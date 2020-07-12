@@ -3,17 +3,10 @@ title: "iPad Pro"
 date: 2020-07-12T12:17:15-04:00
 draft: false
 ---
-# iPad Pro
-
-
-# Intro 
-
 Welcome to 5 minute reviews....and more, where I try to talk for only 5 minutes about a product or service. Full length reviews and product coverages are available elsewhere. Here, I’ll give you the points that stand out to me.
 
 In this episode, I will be talking about the iPad Pro. Well, not just the iPad Pro, but the iPad Pro with the new Magic Keyboard and Apple Pencil. 
 
-
-# Presentation 
 
 I have the 2020 12.9 inch iPad Pro with the new Magic Keyboard and Apple Pencil. And I want to talk about all three of these together because I think that as a set, these items transform this iPad into something wonderful. Not a computer, not an iPad, but some crazy hybrid that can be so much better than both of these. 
 
